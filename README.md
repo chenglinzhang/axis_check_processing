@@ -1,0 +1,3 @@
+Axis Bank Cheque 309125 issued to Ravi Prem Chand Kumar
+50 sources
+This collection of documents consists of several financial cheques issued by Axis Bank Ltd from a specific account belonging to Rajarshi Pal. Each instrument is addressed to a different recipient and details various monetary sums ranging from thousands to several crores of rupees. The transactions were primarily recorded between late 2015 and early 2016, originating from a branch located in Hyderabad. While the account number and the signature of the authorized issuer remain consistent across the set, the payees and dates fluctuate with each individual payment. These sources collectively provide a record of private or business expenditures through a standardized banking format.
